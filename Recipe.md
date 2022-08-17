@@ -1,0 +1,27 @@
+PREPARATION
+Preheat the oven to 175°C. 
+
+Red velvet sponge
+
+Beat butter and sugar until light and fluffy in a bowl.
+Beat in the eggs one by one, mixing well before adding the next.
+Add coloring, vanilla and vinegar and mix well.
+Sift flour, corn starch, cocoa, baking powder and salt into a separate bowl.
+Add half of the dry ingredients to the wet mixture and gently fold through with a rubber spatula.
+Add the buttermilk and the remaining dry ingredients to avoid lumps in the batter. Fold gently till ingredients are well combined.
+Grease a 22 cm cake tin and line the bottom with baking paper.
+Pour the batter into it and smooth the surface.
+Bake the cake for approx. 70 minutes or until baked, and a skewer inserted in the middle comes out clean. Let the cake cool completely before cutting it into 3 sponge layers.
+Cream cheese butter icing
+
+Beat together cream cheese, butter and vanilla seeds.
+Add icing sugar to the butter mixture gradually at low speed.
+Keep the frosting in the fridge until assembling the cake.
+Assembling the cake
+
+Spread out evenly ¼ of the icing on one cake sponge.
+Place a second cake sponge on top and repeat with another ¼ of the icing.
+Place a third and final cake sponge on top and gently press down to make the cake stable and straight.
+Spread out evenly remaining icing on top and sides of the cake. The surface should be completely covered.
+Sprinkle the red velvet cake generously with crushed freeze-dried raspberries just before serving.
+TIP: You can choose to ice the final layer of your cake in two rounds. Ice the cake with a thin layer and leave it to set in the fridge before completing the final layer.
